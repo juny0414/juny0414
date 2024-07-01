@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm KimSeoJun 👋
 
 <p align="left">  
 <a href="https://github.com/juny0414">
